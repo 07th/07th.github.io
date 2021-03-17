@@ -1,2 +1,2 @@
-# 07th.github.io！！
+# 07th.github.io
 
